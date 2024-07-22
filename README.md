@@ -26,3 +26,8 @@ It was a wounderful experience for me at gne . All the teachers are coprative an
 
 ### *Excel certificate*
 ![IMG_4476](https://github.com/user-attachments/assets/da61cd56-9a49-46e8-a322-344fcfeb6492)
+
+
+#MY ACTIVITY REPORT
+
+[ACTIVITY REPORT INDUCTION 2024](https://prabhdeepsingh000786.github.io/Prabhdeepsingh000777.github.io/)
