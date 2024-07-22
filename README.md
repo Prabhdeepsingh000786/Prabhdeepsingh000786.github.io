@@ -14,3 +14,14 @@ S.No. | Subject | Total marks | Obt. marks
 3 | Maths | 100 | 99 
 4 | English | 100 | 95
 5 | Punjabi | 100 | 81
+
+### *Hobbies*
+I love to listen pumjabi and hindi music 
+Drawing is one of my favourate hobbies 
+I like to draw portraits of various things
+This gives me natural happiness
+
+### *Experience for Gndec*
+It was a wounderful experience for me at gne . All the teachers are coprative and respectful . Induction program organised by the college was also full of knowledge
+
+### *Excel certificate*
