@@ -25,3 +25,4 @@ This gives me natural happiness
 It was a wounderful experience for me at gne . All the teachers are coprative and respectful . Induction program organised by the college was also full of knowledge
 
 ### *Excel certificate*
+![IMG_4476](https://github.com/user-attachments/assets/da61cd56-9a49-46e8-a322-344fcfeb6492)
